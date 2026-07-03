@@ -1,4 +1,4 @@
-#  
+#  secret Script for easter tap simulator is the best easter tap simulator Script, featuring unlimited stamina and no cooldown. Safe and powerful for
 
 
 
